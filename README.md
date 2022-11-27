@@ -1,0 +1,2 @@
+- [LinkedIn](https://www.linkedin.com/in/kendallbailey)
+- [Mastadon](https://techhub.social/@krbailey)
